@@ -1,6 +1,7 @@
-![draw-4-banana-peels-there-will-be-an-angel-banana-in-](https://github.com/user-attachments/assets/e49b7ec7-cb6c-4c60-b443-6442220c9ca9)
-
 # MORE BANANA!!!
+
+<img width="640" height="640" alt="draw-4-banana-peels-there-will-be-an-angel-banana-in-" src="https://github.com/user-attachments/assets/b4b9805a-6d7a-4e22-9a76-603d97a6aec2" />
+
 
 * **The mod adds several bananas, namely:**
 * **1. Yellow Banana:** a regular banana that can be slippery.
